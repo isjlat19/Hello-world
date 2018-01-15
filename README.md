@@ -1,2 +1,2 @@
 # Hello-world
-Just following the readme
+Just doing my own thing...
